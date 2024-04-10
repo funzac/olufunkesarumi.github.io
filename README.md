@@ -1,2 +1,2 @@
 # olufunkesarumi.github.io
-My latest Resume
+My Resume
